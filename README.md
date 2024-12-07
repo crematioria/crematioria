@@ -17,3 +17,5 @@ my current fixation is mha and there's a 99.9% chance i'll be wearing a mha pony
 - as noted above: please do not attempt to rp with me if i don't know you, especially in a shipping capacity. this is ponytown. please. spare me
 
 nothing else of note to say, but if you read alla that, feel free to shoot me friend req and say hi :-)
+
+also: [leave me a msg on my tree!](https://colormytree.me/2024/01JEFB5GK7E5HHR18QYXD8MDNS)
